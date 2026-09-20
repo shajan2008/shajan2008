@@ -1,4 +1,4 @@
-# Shajan
+# Shajan S
 
 [HackerRank](https://www.hackerrank.com/profile/shajan072008) | [LinkedIn](www.linkedin.com/in/shajan-s-31424a3b4) | shajan072008@gmail.com
 
